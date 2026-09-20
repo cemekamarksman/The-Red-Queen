@@ -218,4 +218,4 @@ The Red Queen is a full free version with all features and updates included. No 
 Ready to transform your Kodi experience? **Download The Red Queen now and enjoy endless entertainment!**
 
 ---
-**Last updated:** 2026-09-20 16:44:38 UTC
+**Last updated:** 2026-09-20 19:20:22 UTC
